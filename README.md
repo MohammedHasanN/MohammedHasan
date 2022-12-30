@@ -6,9 +6,6 @@
 
 💞️ I also like to collaborate together on projects that involve testing advanced applications
 
-📫 You can reach me via email at hasanazeerkhan@gmail.com or by phone at `+919942094061`
+📫 You can reach me via email at hasanazeerkhan@gmail.com or by phone at `+91 9942094061`
 
-<!---
-hasanazeer/hasanazeer is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+✨Lets connect through LinkedIn for some more discussion [hasannazeer](https://www.linkedin.com/in/hasannazeer/)
