@@ -10,4 +10,4 @@
 
 ✨Lets connect through LinkedIn for some more discussion [hasannazeer](https://www.linkedin.com/in/hasannazeer/)
 
-![image](support/image.png)
+![image](https://user-images.githubusercontent.com/121660086/211139771-61b7a74f-fc35-48eb-bd7f-6ed7488b2311.png)
